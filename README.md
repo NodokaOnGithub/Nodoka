@@ -16,4 +16,4 @@ If any of the skin links dont work, just ask me on discord! (9rh)
 
    I doubt anyone is gonna look but if you are...
 
-   thank you <3
+   thank you! <3 <3 <3 
