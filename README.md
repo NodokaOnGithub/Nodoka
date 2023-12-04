@@ -1,3 +1,3 @@
 # Rin's silly skinning conundrums 
 
-yeah uhhhhhhhhhhhhh
+These are some skins i made/edit over the past years.
