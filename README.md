@@ -10,6 +10,10 @@ If you are coming from github instead of my osu profile, my account can be found
 
 * [**osu!**](https://osu.ppy.sh/users/13378004)
 
-  I doubt anyone is gonna look but if you are...
+If any of the skin links dont work, just ask me on discord! (9rh)
+
+
+
+   I doubt anyone is gonna look but if you are...
 
    thank you <3
