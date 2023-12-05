@@ -18,8 +18,12 @@ If any of the skin links dont work, just ask me on discord! (9rh)
 
    thank you! <3 <3 <3 
 
+# [- iiCaramelKamui | Made somewhere in 2020](https://bit.ly/3TfAclJ) 
+![image](https://cdn.discordapp.com/attachments/701177090984116394/1181737013834158234/image.png?ex=6582255b&is=656fb05b&hm=b17af4c112194d11157828bd1e825243ac90aebcab1b2218df599031ab0dff47&)
+
 # [- CaramelNoobDT | Made somewhere in 2020](https://bit.ly/3RbJxsf)
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1181415885060177940/image.png?ex=6580fa48&is=656e8548&hm=efffa48f63d1442fac42dbda98545bee0192afb6311cb536a60eb389d72f2274&)
 
-# [- CaramelNoob | Made somewhere in 2020](https://bit.ly/3GvgTx6)
+# [- CaramelNoob | 7/18/20](https://bit.ly/3GvgTx6)
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1181384182799278251/image.png?ex=6580dcc2&is=656e67c2&hm=2cb06a0abe49d763c17b6852683e582dae348eca117ef50ddae92dd0e532fb95&)
+                  
