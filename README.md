@@ -18,7 +18,7 @@ https://bit.ly/41a1pIs
 
    thank you! <3 <3 <3 
 
-# [- #AkameCaramel | 8/9/20](https://bit.ly/41a1pIs) 
+# [- #AkameCaramel | 8/9/20](https://bit.ly/3RcYpX7)
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1182101711385534566/image.png?ex=65837902&is=65710402&hm=fdc2093b6662aeb19af986de6138d979d79507c20c9c2a026440828966ca0677&)
 
 # [- iiCaramelKamui | 7/23/20](https://bit.ly/3TfAclJ) 
