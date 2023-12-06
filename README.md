@@ -12,11 +12,14 @@ If you are coming from github instead of my osu profile, my account can be found
 
 If any of the skin links dont work, just ask me on discord! (9rh)
 
-
+https://bit.ly/41a1pIs
 
    I doubt anyone is gonna look but if you are...
 
    thank you! <3 <3 <3 
+
+# [- #AkameCaramel | 8/9/20](https://bit.ly/41a1pIs) 
+![image](https://cdn.discordapp.com/attachments/701177090984116394/1182101711385534566/image.png?ex=65837902&is=65710402&hm=fdc2093b6662aeb19af986de6138d979d79507c20c9c2a026440828966ca0677&)
 
 # [- iiCaramelKamui | 7/23/20](https://bit.ly/3TfAclJ) 
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1181737013834158234/image.png?ex=6582255b&is=656fb05b&hm=b17af4c112194d11157828bd1e825243ac90aebcab1b2218df599031ab0dff47&)
