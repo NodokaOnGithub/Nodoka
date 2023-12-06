@@ -12,7 +12,6 @@ If you are coming from github instead of my osu profile, my account can be found
 
 If any of the skin links dont work, just ask me on discord! (9rh)
 
-https://bit.ly/41a1pIs
 
    I doubt anyone is gonna look but if you are...
 
