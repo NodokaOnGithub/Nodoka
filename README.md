@@ -17,6 +17,9 @@ If any of the skin links dont work, just ask me on discord! (9rh)
 
    thank you! <3 <3 <3 
 
+# [- Da Cookiezi Edit | 8/9/20](https://bit.ly/47IcJhn)
+![image](https://cdn.discordapp.com/attachments/701177090984116394/1182110795992137748/image.png?ex=65838178&is=65710c78&hm=fab2437c692edf17fed6eeb3aa406e366d03cee5abd6f93678567151a6714bc6&)
+
 # [- #AkameCaramel | 8/9/20](https://bit.ly/3RcYpX7)
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1182101711385534566/image.png?ex=65837902&is=65710402&hm=fdc2093b6662aeb19af986de6138d979d79507c20c9c2a026440828966ca0677&)
 
