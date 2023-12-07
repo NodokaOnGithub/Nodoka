@@ -16,6 +16,10 @@ If any of the skin links dont work, just ask me on discord! (9rh)
    I doubt anyone is gonna look but if you are...
 
    thank you! <3 <3 <3 
+https://bit.ly/3Gx1lZO
+
+# [- BogCaramel | 9/30/20](https://bit.ly/3Gx1lZO)
+![image](https://cdn.discordapp.com/attachments/701177090984116394/1182119652441198652/image.png?ex=658389b7&is=657114b7&hm=db588b55ca6c12fe775bf97b308c2dccb7d195c7821746d30d4b22ecbd51e17d&)
 
 # [- # Is noel still relevant? | 9/14/20](https://bit.ly/3R5CeCi)
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1182119652441198652/image.png?ex=658389b7&is=657114b7&hm=db588b55ca6c12fe775bf97b308c2dccb7d195c7821746d30d4b22ecbd51e17d&)
