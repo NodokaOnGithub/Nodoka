@@ -18,7 +18,7 @@ If any of the skin links dont work, just ask me on discord! (9rh)
    thank you! <3 <3 <3 
 
 # [- Da Rucker Edit | 8/19/20](https://bit.ly/46GwVPu)
-(Headphone users beware)
+**(Headphone users beware)**
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1182106290978291773/image.png?ex=65837d46&is=65710846&hm=c0e1d9f1f4b3ec2369358b1d2ea68203cae5516541c715d3575838faa74a4ec2&)
 
 # [- Da Cookiezi Edit | 8/19/20](https://bit.ly/47IcJhn)
