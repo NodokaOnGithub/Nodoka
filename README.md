@@ -18,7 +18,7 @@ If any of the skin links dont work, just ask me on discord! (9rh)
    thank you! <3 <3 <3 
 
 # [- BogCaramel | 9/30/20](https://bit.ly/3Gx1lZO)
-I tried making a skin from scratch because of gura's debut. 
+The first time i tried making a skin from scratch. Gura debuted days before so i made a gura skin!
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1182135463327305868/image.png?ex=65839871&is=65712371&hm=6b7fa8ee3d9f41714bd00581b0317edf1b6a5d9bf9ff6313d3097e35f3260015&)
 
 # [- # Is noel still relevant? | 9/14/20](https://bit.ly/3R5CeCi)
