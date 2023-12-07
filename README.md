@@ -17,7 +17,7 @@ If any of the skin links dont work, just ask me on discord! (9rh)
 
    thank you! <3 <3 <3 
 
-# [- # Is noel still relevant? | 8/25/20](https://bit.ly/3R5CeCi)
+# [- # Is noel still relevant? | 9/14/20](https://bit.ly/3R5CeCi)
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1182119652441198652/image.png?ex=658389b7&is=657114b7&hm=db588b55ca6c12fe775bf97b308c2dccb7d195c7821746d30d4b22ecbd51e17d&)
 
 # [- Da Rucker Edit | 8/25/20](https://bit.ly/46GwVPu)
