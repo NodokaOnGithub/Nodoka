@@ -42,5 +42,5 @@ The first time i tried making a skin from scratch. Gura debuted days before so i
 ![image](https://cdn.discordapp.com/attachments/701177090984116394/1181415885060177940/image.png?ex=6580fa48&is=656e8548&hm=efffa48f63d1442fac42dbda98545bee0192afb6311cb536a60eb389d72f2274&)
 
 # [- CaramelNoob | May 2020](https://bit.ly/3GvgTx6)
-![image](https://cdn.discordapp.com/attachments/701177090984116394/1181384182799278251/image.png?ex=6580dcc2&is=656e67c2&hm=2cb06a0abe49d763c17b6852683e582dae348eca117ef50ddae92dd0e532fb95&)
+![image](https://cdn.discordapp.com/attachments/701177090984116394/1181384182799278251/image.png?ex=66020fc2&is=65ef9ac2&hm=4d531937471d1e30ab668a3fb4e5a1968fb7080aeb936354b61ae54f1a52594b&)
                   
