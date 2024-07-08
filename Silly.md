@@ -18,7 +18,7 @@ If any of the skin links dont work, just ask me on discord! (9rh)
    thank you! <3 <3 <3 
 
 # [- RinHoshizora | 11/18/20](https://bit.ly/3wV0XTn)
-![image](https://cdn.discordapp.com/attachments/701177090984116394/1218479792849158144/image.png?ex=6607d0bc&is=65f55bbc&hm=7a3bd642098371ea0aec0fa61ba6d4147580990e6c29028626f22ee8fdb71f66&)
+![image](https://i.ibb.co/dthRjtT/image-2024-07-07-223341042.png)
 
 # [- BogCaramel | 9/30/20](https://bit.ly/3Gx1lZO)
 The first time i tried making a skin from scratch. Gura debuted days before so i made a gura skin!
